@@ -1,1 +1,1 @@
-# Check out my [blog!](https://p0rtl6.github.io/blog/)
+# [mortality.digital](https://mortality.digital) now out.
