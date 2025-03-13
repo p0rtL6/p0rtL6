@@ -1,1 +1,1 @@
-# [mortality.digital](https://mortality.digital) now out.
+# [mortality.digital](https://mortality.digital)
